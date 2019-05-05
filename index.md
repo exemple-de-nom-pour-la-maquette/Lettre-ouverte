@@ -1,33 +1,48 @@
-# Lettre ouverte
 
-## Propositions de solutions pour l'avenir de l'Archevêché
+# Christ est ressuscité !
 
-
-### Destiné à Monseigneur Jean et au conseil diocésain
+# Autre proposition pour l'avenir de l'Archevêché
 
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Proin volutpat erat sapien, sit amet aliquam sapien vestibulum at. Aliquam cursus id tortor ac porta. Sed laoreet iaculis finibus. Nulla pulvinar viverra felis eget iaculis. Sed est turpis, sodales ac lacinia id, egestas at sem. Sed tempus metus sem, non convallis diam dictum a. Proin nisi lacus, gravida vel congue at, iaculis eget lacus. Fusce tempus euismod tempor. Nunc lobortis mi et cursus vestibulum. Ut dignissim vel tellus a elementum. Integer suscipit sodales nisi in varius. Maecenas ut ex enim. Ut sollicitudin, leo eu malesuada maximus, quam odio gravida eros, malesuada euismod sem dui sit amet lorem.
+_« Demeurez dans la liberté, que nous a donnée le Christ, et ne vous soumettez pas de nouveau au joug de l'esclavage... C'est à la liberté que vous êtes appelés, mes frères. »_ (Gal. 5 : 1-13) Ainsi nous enseigne le saint apôtre Paul. Comment aujourd’hui mettre ce précepte apostolique en pratique pour notre Archevêché ?
 
-- Mauris congue et sapien eget sagittis. Nunc sem nisl, pretium nec ornare in, convallis sed eros. Nam sit amet libero ipsum. Vestibulum ac augue nec ipsum dictum aliquam. Ut placerat mi et sapien dignissim ornare. Donec non nisi ut nisi pharetra euismod quis et magna. Nam ut volutpat massa, a fringilla lacus. Fusce id ligula quis est blandit maximus. Nullam risus dui, venenatis sit amet egestas quis, pellentesque ac quam.
+Alors qu’actuellement se déroule un profond conflit entre le Patriarcat de Moscou et le Patriarcat de Constantinople, il n’est pas de notre intérêt de prendre parti pour l’un ou l’autre de ces Patriarcats. Il n’est pas souhaitable en effet de devenir les victimes de ce conflit. 
 
-- Morbi nisi eros, tristique vitae ornare in, ornare a odio. Nulla ex nisl, dignissim in ultricies a, mattis et nisi. Phasellus dictum massa eget lorem consectetur, nec gravida lectus volutpat. Vivamus eget tincidunt ligula. Fusce egestas dictum placerat. Curabitur non ultricies neque. Sed ac faucibus leo.
+Dans cette perspective seule notre autonomie peut être l’amorce d’un processus où l’Orthodoxie, « ici et maintenant », dans les pays où le Seigneur nous a appelé à vivre et à mener notre témoignage de la foi et de la tradition de nos Pères, prendrait mieux conscience de sa dimension universelle et de son service « pour la vie du monde ». 
 
-- Cras molestie condimentum risus et scelerisque. Integer mattis velit nec lectus vulputate, fringilla pretium odio bibendum. Donec pharetra nisi a magna laoreet tempus. In porta nunc nisl, eu finibus purus consectetur sit amet. Fusce ut auctor diam. Suspendisse elementum sed est accumsan ornare. Ut accumsan laoreet justo, sit amet blandit sapien tincidunt eget. Donec cursus felis aliquam, vulputate lorem et, cursus ligula. Proin sed felis vulputate, luctus ex eu, consectetur nisi. Praesent eget mauris quis quam vulputate auctor eu in odio. Suspendisse et urna massa.
+Il paraît que le patriarcat de Constantinople serait ouvert au dialogue. Il serait souhaitable que le PC reconnaisse notre autonomie, comme il l’a fait pout l’Eglise de Finlande et d’autres. Ce sera sans doute difficile, mais en Christ, avec l’aide de Dieu, le dialogue peut être fructueux. 
 
-Duis posuere vestibulum nibh, tincidunt aliquet felis cursus ut. Donec vel aliquam libero, eget pulvinar purus. Donec mattis ornare eros. Aliquam tincidunt dolor nec dui euismod, et feugiat quam tempus. Nam a malesuada lorem. Morbi iaculis, nunc eu porttitor porttitor, arcu urna convallis metus, ac accumsan arcu dolor dignissim nibh. Pellentesque vel purus porta, finibus odio tincidunt, placerat orci. Proin turpis massa, lacinia sit amet viverra ut, aliquam sit amet dui. Aenean vitae dolor turpis. Lorem ipsum dolor sit amet, consectetur adipiscing elit. Pellentesque bibendum metus semper luctus faucibus. Curabitur cursus purus ac maximus commodo. Maecenas bibendum dictum risus a congue. 
+La logique des règles canoniques voudrait qu’une jeune Eglise soit, un jour ou l’autre, émancipée par son « Eglise-Mère ». Cependant l’histoire montre que l’indépendance a été le plus souvent reconnue après-coup par les « Eglises-Mère ». Ainsi, par exemple, pour les autocéphalies récentes des Eglises de Grèce (1850) et de Bulgarie (1953), tout comme d’ailleurs dans un passé plus ancien pour l’Eglise de Russie (1589), qui maintint unilatéralement son indépendance ecclésiastique après 1448 contre le gré de son « Eglise –Mère », le Patriarcat de Constantinople, bien après que celui-ci eût renié la funeste union de Florence. Aujourd’hui encore, l’autocéphalie de l’Eglise orthodoxe en Amérique (OCA), donnée par Moscou en 1970, n’est toujours pas reconnue par le Patriarcat de Constantinople, ce qui n’empêche pas l’OCA d’être en communion avec de nombreuses Eglises Orthodoxes. 
 
-### Paris, le 05 avril 2019
+Dans notre cas, nous nous trouvons confrontés à un problème sans précédent, dans la mesure où notre Archevêché, d’origine et de tradition russes, certes, n’en est pas moins devenu aujourd’hui une entité ecclésiale plurinationale et désormais enracinée localement, dans neuf pays européens, sans autre « Mère » que l’Eglise Orthodoxe tout entière, ainsi appelée à l’universalité et à l’unité. 
+Notre autonomie et notre indépendance, humble et ouverte, surmontant toute nostalgie et la peur de l’avenir, devrait susciter une sollicitude paternelle et une neutralité bienveillante de la part de l’ensemble des Patriarcats Orthodoxes, auxquels nous exprimons notre profond respect, notre soutien indéfectible et notre gratitude. 
+
+Dans la mesure où nous serons capables de demeurer tous ensemble fermement unis, conscients de notre vocation particulière en Europe Occidentale, nous serons reconnus et assurés d’obtenir les participations nécessaires aux sacres épiscopaux, sans aucune ingérence extérieure dans l’élection de nos candidats.
+
+En profitant de notre indépendance et de notre autonomie, notre Archevêché, pourra plutôt servir de modeste point de référence, en constituant autant que faire se peut un espace de réelle liberté conciliaire, et où, éventuellement, les Églises en conflit pourront trouver un lieu commun de concélébration, de dialogue et de paix. Au nom de l’amour de Dieu, espérons que notre identité et notre indépendance nous soient donnés et garantis.
+
+### Pâques 2019
 
 
 
-## Cosignataires
+## Signataires (liste ouverte)
 
 
 **Pour devenir cosignataire, merci de vous rendre sur [ce lien](https://forms.gle/wStEbEetpCHoVRrp6).**
 
 
-### Nil Niviere
-### Barack Obama
-### Prenom Nom
+### p.Wladimir Yagello
+### Barbara Yagello
+### p.Vladislav Trembovelski
+### p.Antony Sergueievski
+### diacre Seraphim Dregwald
+### Michel Mojaïski
+### Marie Stakhovitch
+### Irina Mojaïsky Evstathiou
+### Nathalie Sidorenko
+### Marc Sidorenko
+### Basile Kotschoubey
+### Serge Armbruster
+
 
 
