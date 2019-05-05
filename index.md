@@ -56,3 +56,9 @@ Your Pages site will use the layout and styles from the Jekyll theme you have se
 ### Support or Contact
 
 Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+
+<form accept-charset="UTF-8" action="https://usebasin.com/f/123456xabcdef" enctype="multipart/form-data" method="POST">
+  <input type="email" id="email" name="email" required>
+  <textarea rows="4" cols="50" name="comment" required></textarea>
+  <button type="submit">Submit</button>
+</form>
