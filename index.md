@@ -23,7 +23,7 @@ Duis posuere vestibulum nibh, tincidunt aliquet felis cursus ut. Donec vel aliqu
 ## Cosignataires
 
 
-**Pour devenir co-signataire, merci de vous rendre sur [ce lien](https://guides.github.com/features/mastering-markdown/).**
+**Pour devenir co-signataire, merci de vous rendre sur [ce lien](https://forms.gle/wStEbEetpCHoVRrp6).**
 
 
 ### Nil Niviere
