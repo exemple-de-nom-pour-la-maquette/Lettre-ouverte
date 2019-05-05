@@ -19,10 +19,12 @@ Duis posuere vestibulum nibh, tincidunt aliquet felis cursus ut. Donec vel aliqu
 ### Paris, le 05 avril 2019
 
 
-**Pour devenir co-signataire, merci de vous rendre sur [ce lien](https://guides.github.com/features/mastering-markdown/).**
-
 
 ## Cosignataires
+
+
+**Pour devenir co-signataire, merci de vous rendre sur [ce lien](https://guides.github.com/features/mastering-markdown/).**
+
 
 ### Nil Niviere
 ### Barack Obama
